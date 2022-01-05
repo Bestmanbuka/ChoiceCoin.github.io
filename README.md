@@ -1,3 +1,2 @@
-# ChoiceCoin.github.io
-Choice Coin Public Website.
-Community-Managed. Find out more about Choice Coin here!
+
+@OSSDAO-ORG•AIRDROP- 0x5A94EDe83782823B0F87958159f7B1143F4b8E11 
